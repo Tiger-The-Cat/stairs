@@ -1,3 +1,4 @@
 # stairs
-![image](https://github.com/user-attachments/assets/e1120d48-d9fb-4f84-a5b7-99067c6d68d9)
+![stairs](https://github.com/user-attachments/assets/06c58479-fc6f-407a-aed7-e3e0fe3937db)
+
 

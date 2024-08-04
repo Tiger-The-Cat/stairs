@@ -1,2 +1,3 @@
 # stairs
-![image](https://github.com/user-attachments/assets/198474e2-3400-408c-9b58-a10865aa455a)
+![image](https://github.com/user-attachments/assets/a2e412a8-3301-4306-bc70-070599c11675)
+
